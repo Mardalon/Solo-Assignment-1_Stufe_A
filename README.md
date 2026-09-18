@@ -1,0 +1,1 @@
+# Solo-Assignment-1_Stufe_A
